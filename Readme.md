@@ -11,3 +11,5 @@ Vai upar aquele montão de código parado??
   - Esperar os Forks;
   - Sentar no sofá e esperar a **NSA** me contratar, ou **Anonymous**, ou 
 **FSociety**;
+
+Nota: Já estamos em 2019 e ainda não fui recrutado. :/
