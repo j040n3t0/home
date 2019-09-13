@@ -12,4 +12,4 @@ Vai upar aquele montão de código parado, bixão??
   - Sentar no sofá e esperar a **NSA** me contratar, ou **Anonymous**, ou 
 **FSociety**;
 
-Nota: Já estamos em 2019 e **ainda** não fui recrutado. :/
+Nota: Já estamos em 09/2019 e **ainda** não fui recrutado. :/
